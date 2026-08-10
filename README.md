@@ -1,1 +1,1 @@
-# Institucion-EducativaS-an-Patricio
+# Institucion-Educativa-San-Patricio
